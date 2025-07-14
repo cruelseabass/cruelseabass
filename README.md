@@ -12,6 +12,8 @@
 
 🐴
 
+[@Welcome2Paradise](https://github.com/Welcome2Paradise) . [@6inchesin](https://github.com/6InchesIn) . [@johnmarstoned](https://github.com/johnmarstoned) . [@crossinton](https://github.com/crossinton)
+
 <p align="center">
   <img width="300" height="300" src="https://files.catbox.moe/7k2fr1.png">
 </p>
