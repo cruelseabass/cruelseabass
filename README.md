@@ -19,7 +19,7 @@
 <3
 
 <p align="center">
-  <img width="300" height="300" src="https://files.catbox.moe/7k2fr1.png">
+  <img width="300" height="250" src="https://files.catbox.moe/4i8h0j.png">
 </p> 
 
 ![wowie](https://komarev.com/ghpvc/?username=cruelseabass&color=gray)
