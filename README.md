@@ -26,7 +26,7 @@
 
 ᵀʰᵉ ᶠᵒˡˡᵒʷⁱⁿᵍ ᵐᵃʸ ᵇᵉ ᵗᵉᵐᵖᵒʳᵃʳⁱˡʸ ʳᵉᵐᵒᵛᵉᵈ, ᵒʳ ⁿᵒᵗ ᵘᵖᵈᵃᵗᵉᵈ ᵃˢ ᴵ'ᵐ ⁿᵒᵗ ᶠᵒᶜᵘˢⁱⁿᵍ ᵗᵒᵒ ᵐᵘᶜʰ ᵒⁿ ᵗʰⁱˢ ᴳⁱᵗᴴᵘᵇ.
 
-<p style="text-align:center"><a href="https://seabassion.carrd.co/"><img height="86" width="86" src="https://files.catbox.moe/mif0qz.png" /></a>.<a href=""><img height="86" width="86" src="https://files.catbox.moe/q1rjd1.png" /></a>.<a href=""><img height="86" width="86" src="https://files.catbox.moe/tkpebs.png"/></a>.<a
+<p style="text-align:center"><a href="https://seabassion.carrd.co/"><img height="76" width="76" src="https://files.catbox.moe/mif0qz.png" /></a>.<a href=""><img height="76" width="76" src="https://files.catbox.moe/q1rjd1.png" /></a>.<a href=""><img height="76" width="76" src="https://files.catbox.moe/tkpebs.png"/></a>.<a
 
  </h5>
   
@@ -34,6 +34,7 @@
 
   <h5 align="center">
 
-*ᴵ ᵃᵐ ᵃ ᵐᵘˢⁱᶜ ˡᵒᵛᵉʳ, ᴵ ˡⁱˢᵗᵉⁿ ᵗᵒ ᵃˡˡ ᵗʸᵖᵉˢ ᵒᶠ ᵐᵘˢⁱᶜ ᵉˣᶜᵖᵉᵗ ᵍᵉⁿᵉʳⁱᶜ ᵖᵒᵖ ᵐᵘˢⁱᶜ ᵃⁿᵈ ᶜᵒᵘⁿᵗʳʸ ᵐᵘˢⁱᶜ. ᴵ ᴿᴱᴬᴸᴸʸ ⁱⁿᵈᵘˡᵍᵉ ⁱⁿ ʳᵒᶜᵏ ᵐᵘˢⁱᶜ ᵃⁿᵈ ᵇᵃⁿᵈ ʰⁱˢᵗᵒʳʸ. ᴵ ᵍʳᵉᵃᵗʸ ˡᵒᵛᵉ ᵀᴼᴼᴸ ᵃˢ ⁱᵗ ⁱˢ ᵐʸ ᶠᵃᵛᵒʳⁱᵗᵉ ᵇᵃⁿᵈ, ⁱᶠ ʸᵒᵘ ʰᵃᵛᵉ ᵃⁿʸ ᵐᵘˢⁱᶜ ʳᵉᶜᶜᵒᵐᵉⁿᵈᵃᵗⁱᵒⁿˢ ᵖˡᵉᵃˢᵉ, ˢᵉⁿᵈ ᵗʰᵉᵐ ᵒᵛᵉʳ!*
+*I am a music lover, I listen to all types of music excpet generic pop music and country music. I REALLY indulge in rock music and band history. I greaty love TOOL as it is my favorite band, if you have any music reccomendations please, send them over!*
+
 
 
