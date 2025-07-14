@@ -26,7 +26,7 @@
 
 ᵀʰᵉ ᶠᵒˡˡᵒʷⁱⁿᵍ ᵐᵃʸ ᵇᵉ ᵗᵉᵐᵖᵒʳᵃʳⁱˡʸ ʳᵉᵐᵒᵛᵉᵈ, ᵒʳ ⁿᵒᵗ ᵘᵖᵈᵃᵗᵉᵈ ᵃˢ ᴵ'ᵐ ⁿᵒᵗ ᶠᵒᶜᵘˢⁱⁿᵍ ᵗᵒᵒ ᵐᵘᶜʰ ᵒⁿ ᵗʰⁱˢ ᴳⁱᵗᴴᵘᵇ.
 
-<p style="text-align:center"><a href="https://seabassion.carrd.co/"><img height="76" width="76" src="https://files.catbox.moe/mif0qz.png" /></a>.<a href="https://seabass.atabook.org/"><img height="76" width="76" src="https://files.catbox.moe/q1rjd1.png" /></a>.<a href=""><img height="76" width="76" src="https://files.catbox.moe/tkpebs.png"/></a>.<a
+<p style="text-align:center"><a href="https://seabassion.carrd.co/"><img height="76" width="76" src="https://files.catbox.moe/mif0qz.png" /></a>.<a href="https://seabass.atabook.org/"><img height="76" width="76" src="https://files.catbox.moe/q1rjd1.png" /></a>.<a href="https://bsky.app/profile/cheesewezz.bsky.social"><img height="76" width="76" src="https://files.catbox.moe/tkpebs.png"/></a>.<a
 
 <h6 align="center">
   
