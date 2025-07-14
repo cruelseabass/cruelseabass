@@ -3,5 +3,9 @@
 </p>
 
 <p align="center">
-  <img width="200" height="500" src="https://files.catbox.moe/oqc6cm.png">
+  <img width="50" height="50" src="https://files.catbox.moe/yy0m9q.png">
+</p>
+
+<p align="center">
+  <img width="300" height="300" src="https://files.catbox.moe/7k2fr1.png">
 </p>
