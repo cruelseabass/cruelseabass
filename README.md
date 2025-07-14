@@ -34,7 +34,10 @@
 
 </h6>
 
-I am a music lover, I listen to all types of music excpet generic pop music and country music. I REALLY indulge in __rock music and band history__. I greaty __love TOOL__ as it is my favorite band, if you have any music reccomendations please, send them over!
+I am a music lover, I listen to all types of music except generic pop music and country music. I REALLY indulge in __rock music and band history__. I greaty __love TOOL__ as it is my favorite band, if you have any music reccomendations please, send them over!
+
+
+I clarify a lot about me in my [@cheesewezz](https://github.com/cheesewezz) account. Go check it out!
 
 
 
