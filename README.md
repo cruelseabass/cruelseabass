@@ -12,7 +12,7 @@
 
 🐴
 
-[@Welcome2Paradise](https://github.com/Welcome2Paradise) . [@johnmarstoned](https://github.com/johnmarstoned) . [@6inchesin](https://github.com/6InchesIn) . [@crossinton](https://github.com/crossinton)
+[@Welcome2Paradise](https://github.com/Welcome2Paradise) . [@johnmarstoned](https://github.com/johnmarstoned) . [@crossinton](https://github.com/crossinton)
 
 ᴵ'ᵛᵉ ᵍᵒᵗ ᵃ ˢᵖᵉᶜⁱᵃˡ ᵖˡᵃᶜᵉ ⁱⁿ ᵐʸ ᵇᵉᵉʳ ᶜᵒⁿᵗᵃⁱⁿᵉʳ ᶠᵒʳ ᵃˡˡ ᵒᶠ ʸᵒᵘ 
 
